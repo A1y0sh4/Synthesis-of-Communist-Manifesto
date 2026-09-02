@@ -15,7 +15,7 @@ Modern state power is only a committee which administers the common affairs of b
 
 The state is, as a rule, the state of the most powerful class, economically and consequently also politically dominant. It is the instrument of the exploiting class to force the exploited class into the conditions of oppression given by the existing mode of production. The modern representative state is the instrument for the exploitation of wage labor by capital.
 ##
-In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern wage-laborers who live only as long as they find work and who find work only as long as their labor increases capital. The labor-power of these laborers is a commodity like any other article of commerce, and in the same way their wages are exposed to all market fluctuations.
+In the same measure as the bourgeoisie, i.e., capital, develops, so does the proletariat, the class of modern wage-workers who live only as long as they find work and who find work only as long as their labor increases the value of capital. The labor-power of these workers is a commodity like any other article of commerce, and in the same way their wages are exposed to all market fluctuations.
 
 For the working class, differences of sex and age no longer have any directly social validity. There are only work tools that have different costs depending on age and gender.
 
